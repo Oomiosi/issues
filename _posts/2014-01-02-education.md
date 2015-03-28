@@ -10,11 +10,11 @@ Public school teachers -- at every level, from pre-K to college -- should be rew
 
 Dave attended New Jersey public schools from first grade through college. Our campaign wants to make sure public funds are going to capital investments in what works, expanding access to technology and ensuring our students get world class training in science, technology, the arts, and every other pursuit that enriches our community's future.
 
-Like so many other South Jersey families, Dave and his wife Itir know first-hand the burden of student debt. Dave supports a number of key actions the federal government can take to lessen the debt that students face upon graduation.
+Like many South Jersey families, Dave and his wife Itir know first-hand the burden of student debt. Dave supports a number of key actions the federal government can take to lessen the debt that students face upon graduation.
 
 ## Fresh Start for South Jersey's Schools
 
-- Upgrade our schools, by investing in school construction and energy-efficiency improvements, as well as expanding access to technology
+- Upgrade our schools by investing in school construction and energy-efficiency improvements, as well as expanding access to advanced technologies.
 - Work with teachers to set curriculum standards as well as fair and effective evaluation methods
 - Support teachers' collective bargaining rights and funding for public schools, instead of initiatives that drain vital resources from public education, such as private vouchers
 
